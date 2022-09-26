@@ -1,1 +1,1 @@
-quiz-game‚ÌƒŒƒ|ƒWƒgƒŠ
+quiz-gameã®ãƒ¬ãƒã‚¸ãƒˆãƒª
