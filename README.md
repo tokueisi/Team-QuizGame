@@ -1,4 +1,3 @@
 quiz-gameのレポジトリ
 aaa
-kakakakakakaka
-dlkvkhhi
+kkkkkkk
