@@ -2,3 +2,4 @@ quiz-gameのレポジトリ
 aaa
 坂本さん
 aaaaaaaaaaaaaaaaaaaa
+坂本さんかわいい
